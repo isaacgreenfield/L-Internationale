@@ -1,5 +1,4 @@
 # L-Internationale
-The revolution is coming
 
 Debout! les damnés de la terre
 
