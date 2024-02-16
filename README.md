@@ -100,5 +100,7 @@ L’oisif ira loger ailleurs.
 Combien de nos chairs se repaissent!
 
 Mais si les corbeaux, les vautours,
+
 Un de ces matins disparaissent,
+
 Le soleil brillera toujours!
